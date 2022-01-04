@@ -1,1 +1,0 @@
-# mamikhailanoriega.github.io
